@@ -18,7 +18,7 @@ I am unapologetically intense in my approach to organisation - whilst at Univers
 
 #### Neophilic
 
-I'm instatiable curious; I love the new, the shiny, the novel. In my working life this manifests as a willingness to turn my hands to all things, be that ad hoc Facebook Marketing for the pub in which I was bartending, or single-handedly building a Google Sheets based Content Management Database for Cleo AI's Help Center articles. I am at my best when working in fast-paced, Agile environments, in which no two days are alike. I love hats and I like to wear lots of different ones. 
+I'm instatiable curious; I love the new, the shiny, the novel. In my working life this manifests as a willingness to turn my hand to anything, be that ad hoc Facebook Marketing for the pub in which I was bartending, or single-handedly building a Google Sheets based Content Management Database for Cleo AI's Help Center articles. I am at my best when working in fast-paced, Agile environments, in which no two days are alike. I love hats and I like to wear lots of different ones. 
 
 
 ## Education
